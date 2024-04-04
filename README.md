@@ -1,4 +1,4 @@
-![Emir](https://upload.wikimedia.org/wikipedia/commons/5/56/Tiger.50.jpg](https://media.licdn.com/dms/image/C5603AQEjZrCwYafQnw/profile-displayphoto-shrink_200_200/0/1580256323277?e=2147483647&v=beta&t=XUfd7qnbF0BhPbSPiFmCPDbOBIXPjEnyYEz7PlZlM18)
+![Emir](https://media.licdn.com/dms/image/C5603AQEjZrCwYafQnw/profile-displayphoto-shrink_200_200/0/1580256323277?e=2147483647&v=beta&t=XUfd7qnbF0BhPbSPiFmCPDbOBIXPjEnyYEz7PlZlM18)
 
 # EMİR TUKÖZOĞLU
 
